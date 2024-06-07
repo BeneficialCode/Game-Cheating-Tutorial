@@ -382,6 +382,5 @@
 
 * [ 一号选手 - 英文 ](https://www.unknowncheats.me/forum/index.php)
 * [ 二号选手 - 英文 ](https://guidedhacking.com/)
-* [ 三号选手 - 英文 ](https://void.to)
 </details>
 
